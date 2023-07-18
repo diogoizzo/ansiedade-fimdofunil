@@ -1,1 +1,1 @@
-Página de obrigado pela compra do método 100 ansiedade, com downsale de três ebooks por R$ 19,00.
+Página que vem após o downsell dos três ebooks, onde é oferecido o último desconto e é o fim do funil de vendas do protocolo 100 ansiedade.
